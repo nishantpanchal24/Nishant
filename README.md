@@ -22,7 +22,7 @@ Email Address: - Nishantpanchal24@live.com
 
 ⚡ Fun fact: whats next , best is yet to come  🏃
 
-**Connect with me:**
+**Connect with me:** ok
 
 https://www.linkedin.com/in/nishant-panchal-bb456928/
 
